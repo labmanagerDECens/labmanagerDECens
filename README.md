@@ -1,4 +1,4 @@
-👋 Hi, I’m @labmanagerDECens
+👋 Hi, I’m the labmanager at the DEC at Ens
    👀 I’m interested in Cognitives Sciences
    📫 
 
